@@ -88,3 +88,21 @@ jokes corner aside boi...
 <p align="center">
 <img width="498" height="498" alt="good-afternoon-buenas-tardes (1)" src="https://github.com/user-attachments/assets/c23dd17a-38bf-4d3c-865a-1ae868efb91c" />
  
+    azure... I'm sorry, truly sorry with my soul and my sinners... 
+<p align="center">
+<img width="680" height="385" alt="Two Time (2)" src="https://github.com/user-attachments/assets/8d1a18dd-4aa0-4c06-af66-7c2bbfbe85e2" />
+
+
+<p align="left">
+    <img width="374" height="281" alt="forsaken-two-time" src="https://github.com/user-attachments/assets/372aec6a-e734-48a1-a69b-89b10cd00b1c" />
+<p align="right">
+<img width="498" height="270" alt="forsaken-forsaken-two-time" src="https://github.com/user-attachments/assets/3761d9f9-14da-4af7-ad34-d314f66d3633" />
+<p align="center">
+<img width="498" height="286" alt="forsaken-twotime" src="https://github.com/user-attachments/assets/369a1802-4ff8-4a6b-9467-c2d39c59f9eb" />
+
+
+<p align="center">
+<img width="736" height="414" alt="two time banner !!" src="https://github.com/user-attachments/assets/f7b78358-cafe-42f2-ae24-f0f2afddf210" />
+
+
+     (short one in progress omg I cant make any readme shorter bro) 
